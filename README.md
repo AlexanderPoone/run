@@ -8,7 +8,7 @@ Sienna scintillations from your straight silky hair,
 
 Spellbinding, more than any strand Tizian ever painted.
 
-
+<br>
 
 In the valley, by the river, in the foothills,
 
@@ -18,7 +18,7 @@ An interllect as forward as Ida Ward, as strong as Lilias Armstrong,
 
 Oh how I adore you, my fair.
 
-
+<br>
 
 Multicultural and versatile, yet
 
