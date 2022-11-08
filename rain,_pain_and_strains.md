@@ -14,7 +14,7 @@ In the valley, by the river, in the foothills,
 
 Crikey, you are seen everywhere.
 
-An interllect as forward as Ida Ward, as strong as Lilias Armstrong,
+An intellect as forward as Ida Ward, as strong as Lilias Armstrong,
 
 Oh how I adore you, my fair.
 
