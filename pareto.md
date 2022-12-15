@@ -6,7 +6,7 @@ Elon Musk sacked most Twitter employees. He couldn't be more correct. Notice tha
 
 0.001-100, the rest is history
 
-25-75: Kiasu is a winning trait in Singapore.
+25-75: Kiasu is a winning trait in Singapore and Japan.
 
 0.001-100 for a giant beanstalk, or vines in a rainforest.
 
