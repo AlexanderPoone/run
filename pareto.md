@@ -15,3 +15,5 @@ Creation is an incomplete process per Irenaeus. It is time to admit the fact tha
 It is not merely a lack of ability, but taking imcompetence for granted. These humanoids are as viscous as treacle in a cauldron.
 
 In some places, a book can be judged by its cover. Their 'up to no good' visages, avoidance of eye contact, and perhaps their 'creative' 'English' names or absence of one in the business world. The West is deluded to think that their theories and sayings apply everywhere, and deluded to call every social norm a 'culture' that needs to be respected.
+
+In some places, the 'literati' read everything literally.
