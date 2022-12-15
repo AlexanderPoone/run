@@ -6,6 +6,8 @@ Elon Musk sacked most Twitter employees. He couldn't be more correct. Notice tha
 
 0.001-100, the rest is history
 
+25-75: Kiasu is a winning trait in Singapore.
+
 0.001-100 for a giant beanstalk, or vines in a rainforest.
 
 There is a country where the society is what we called a 'chaos-harmony lattice' in anthropology. A lattice of ripple-like **c**haotic **c**oncentric **c**ircles that swell and **c**ontract **c**urtly. If you view from the outer space, it looks a 'strong and stable' lattice. Yet the devil is in the details. Foreigners seldom observe the dyads. Bus drivers 'struggled' (this word cannot be apter and it reminds me of a book by a bad Austrian painter) to tarnish each other's names. A valiant struggle indeed.
