@@ -12,7 +12,7 @@ There is a country where the society is what we called a 'chaos-harmony lattice'
 
 Creation is an incomplete and ongoing process per Irenaeus. It is time to admit the fact that some people have no qualities at all. Sad but true, not everyone is born useful. You can't make a circle square.
 
-The West don't understand. I'm fully aware that not everybody wanted to be thrown into this planet, but those are les Miserables. In this fabled magical land everything is the opposite. It is not merely a lack of ability, but taking imcompetence for granted. These people had (or should I say have?) lived in the rainforest for so long that they refuse to work. Usually they are found swinging their genitals like a helicopter rotor. These humanoids are as viscous as treacle in a cauldron.
+The West don't understand. I'm fully aware that not everybody wanted to be thrown into this planet, but those are les Miserables. In this fabled magical land everything's the opposite. I'm not concerning a mere lack of ability, but taking imcompetence for granted. These people had (or should I say have?) lived in the rainforest for so long that they refuse to work. Usually they are found swinging their genitals like a helicopter rotor. These humanoids are as viscous as treacle in a cauldron.
 
 In some places, a book can be judged by its cover. Their 'up to no good' visages, avoidance of eye contact, and perhaps their 'creative' 'English' names or absence of one in the business world. The West is deluded to think that their theories and sayings apply everywhere, and deluded to call every social norm a 'culture' that needs to be respected. What Dunning-Kruger effect? Alas, all theories turn into solid waste in these (or should I say those?) lands.
 
