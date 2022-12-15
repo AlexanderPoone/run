@@ -1,4 +1,4 @@
-Elon Musk fired most Twitter employees. He couldn't be more correct. Notice that Twitter is a western firm.
+Elon Musk sacked most Twitter employees. He couldn't be more correct. Notice that Twitter is a western firm.
 
 20-80, individualist societies with star players like Ronaldo or Messi
 
