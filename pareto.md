@@ -14,7 +14,7 @@ Creation is an incomplete and ongoing process per Irenaeus. It is time to admit 
 
 It is not merely a lack of ability, but taking imcompetence for granted. These people had (or should I say have?) lived in the rainforest for so long that they refuse to work. Usually they are found swinging their genitals like a helicopter rotor. These humanoids are as viscous as treacle in a cauldron.
 
-In some places, a book can be judged by its cover. Their 'up to no good' visages, avoidance of eye contact, and perhaps their 'creative' 'English' names or absence of one in the business world. The West is deluded to think that their theories and sayings apply everywhere, and deluded to call every social norm a 'culture' that needs to be respected.
+In some places, a book can be judged by its cover. Their 'up to no good' visages, avoidance of eye contact, and perhaps their 'creative' 'English' names or absence of one in the business world. The West is deluded to think that their theories and sayings apply everywhere, and deluded to call every social norm a 'culture' that needs to be respected. What Dunning-Kruger effect? All theories turn into solid waste in these (or should I say those?) lands.
 
 *Pie Jesu Domine, Dona eis requiem. Amen.*
 
