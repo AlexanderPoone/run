@@ -10,4 +10,4 @@ There is a country where the society is what we called a 'chaos-harmony lattice'
 
 Creation is an incomplete process per Irenaeus. It is time to admit the fact that some people have no qualities at all. Sad but true, not everyone is born useful. You can't make a circle square.
 
-It's like treacle in a cauldron. Viscous.
+It is not merely a lack of ability, but taking imcompetence for granted. These humanoids are as viscous as treacle in a cauldron.
