@@ -10,7 +10,7 @@ Elon Musk sacked most Twitter employees. He couldn't be more correct. Notice tha
 
 There is a country where the society is what we called a 'chaos-harmony lattice' in anthropology. A lattice of ripple-like **c**haotic **c**oncentric **c**ircles that swell and **c**ontract **c**urtly. If you view from the outer space, it looks a 'strong and stable' lattice. Yet the devil is in the details. Foreigners seldom observe the dyads. Bus drivers 'struggled' (this word cannot be apter and it reminds me of a book by a bad Austrian painter) to tarnish each other's names. A valiant struggle indeed.
 
-Creation is an incomplete and ongoing process per Irenaeus. It is time to admit the fact that some people have no qualities at all. Sad but true, not everyone is born useful. You can't make a circle square.
+Creation is an incomplete and ongoing process per Irenaeus. It is time to admit the fact that some people have no qualities at all. Sad but true, not everyone is born useful. You can't make a circle square. Indeed, not everybody wanted to be thrown into this planet. They simply didn't want to exist.
 
 It is not merely a lack of ability, but taking imcompetence for granted. These people had (or should I say have?) lived in the rainforest for so long that they refuse to work. Usually they are found swinging their genitals like a helicopter rotor. These humanoids are as viscous as treacle in a cauldron.
 
