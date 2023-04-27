@@ -152,6 +152,26 @@ Pie Jesu Domine, Dona eis requiem. Amen.
 
 ----
 
+Lascia ch'io Pianga / Let me weep over
+
+mia cruda sorte, / my cruel fate,
+
+𝄆 𝄆 e che sospiri 𝄇 / and let me sigh for
+
+la libertà. 𝄇 / liberty.
+
+(Intermezzo)
+
+Il duol{o i}nfranga / May sorrow shatter (minor)
+
+queste ritorte, / these chains,
+
+𝄆 de' miei martiri / for my torments
+
+sol per pietà. 𝄇 / just out of pity.
+
+----
+
 Schafe können sicher weiden,
 
 羊群可以安全吃草，
